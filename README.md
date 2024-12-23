@@ -1,0 +1,1 @@
+# Gempa_dan_cuaca
